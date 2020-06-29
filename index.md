@@ -13,4 +13,5 @@ Das Känguru, das durchweg in der Reihe das Känguru heißt, ist Kommunist, ein 
 * unordentlich
 * macht bei Mein und Dein keine Unterschiede 
 
-< Ach. Mein. Dein. Das sind doch alles bürgerliche Kategorien.
+> Ach. Mein. Dein. 
+> Das sind doch alles bürgerliche Kategorien.

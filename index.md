@@ -17,4 +17,3 @@ Das Känguru, das durchweg in der Reihe das Känguru heißt, ist Kommunist, ein 
 > Das sind doch alles bürgerliche Kategorien.
 
 
-<img src="https://kulturnews.de/wp-content/uploads/2020/03/die-kaenguru-chroniken.jpg/>

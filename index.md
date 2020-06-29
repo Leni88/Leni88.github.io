@@ -12,3 +12,6 @@ Das Känguru, das durchweg in der Reihe das Känguru heißt, ist Kommunist, ein 
   * Aktionen, die man schon als politisch bezeichnen könnte
 * unordentlich
 * macht bei Mein und Dein keine Unterschiede 
+
+> Ach. Mein. Dein. 
+> Das sind doch alles bürgerliche Kategorien.
